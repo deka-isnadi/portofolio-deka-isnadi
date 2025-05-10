@@ -1,3 +1,4 @@
 # portofolio-deka-isnadi
 ---
-##### lorem ipsum
+##### CV saya bisa dilihat di sini 
+(CV)
